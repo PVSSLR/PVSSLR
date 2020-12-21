@@ -1,4 +1,4 @@
-### Hi there, I am Sunil [www.vssunil.com][My Website]
+### Hi there, I am Sunil 
 
 ## An Aerospace Engineer, electronics enthusiast!
 
